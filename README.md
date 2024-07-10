@@ -9,3 +9,4 @@ The relating code has been provided.
 
 ![1720583503421](https://github.com/jllllllllllll/under_the_curve/assets/98111263/7565b8c0-34a9-4573-aa07-a235a4771491)
 
+![1720583604812](https://github.com/jllllllllllll/under_the_curve/assets/98111263/77082a20-76ef-4578-b68d-6efa96b2f8a7)
